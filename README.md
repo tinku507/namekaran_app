@@ -1,1 +1,1 @@
-# namekaran_app
+share and copy name
